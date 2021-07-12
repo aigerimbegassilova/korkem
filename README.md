@@ -1,1 +1,1 @@
-# korkem
+# korkem.kz
